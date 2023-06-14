@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @Kirtap01
-- 📫 How to reach me through my HAW HFT Stuttgart
